@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...the versitility of life
 - 🌱 I’m currently learning ...Html
 - 💞️ I’m looking to collaborate on ...projects which can enhance productivity
-- 📫 How to reach me ...email: ayenisamuel4christ@gmail.com
+- 📫 How to reach me ...email: ayenisamuel4christ@gmail.com 
 - 😄 Pronouns: ...Him
 - ⚡ Fun fact: ...I like meeting new people
 
